@@ -1,1 +1,0 @@
-# Oscilaciones-y-Ondas
